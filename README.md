@@ -6,10 +6,9 @@ https://mrwinstonco.au/
 # Our other collection
 
 Hoodies
-
 https://mrwinstonco.au/mr-winston-hoodie/
 
-Tee
+T-Shirts
 https://mrwinstonco.au/mr-winston-t-shirt/
 
 Bottoms
