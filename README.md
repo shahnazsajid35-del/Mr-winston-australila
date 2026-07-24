@@ -13,3 +13,19 @@ https://mrwinstonco.au/mr-winston-t-shirt/
 
 Bottoms
 https://mrwinstonco.au/mr-winston-bottom/
+
+# Content Platforms
+
+Medium
+
+https://medium.com/@shahnazsajid35/
+
+Wordpress
+
+styledistrict2.wordpress.com
+
+Blogger
+
+https://www.blogger.com/blog/posts/635987158870719461
+
+
