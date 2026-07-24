@@ -22,7 +22,7 @@ https://medium.com/@shahnazsajid35/
 
 Wordpress
 
-styledistrict2.wordpress.com
+https://styledistrict2.wordpress.com/
 
 Blogger
 
