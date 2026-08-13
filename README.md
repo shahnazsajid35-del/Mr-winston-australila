@@ -28,4 +28,25 @@ Blogger
 
 https://www.blogger.com/blog/posts/635987158870719461
 
+# Brand Profiles
+
+Pinterest
+
+https://www.pinterest.com/shahnazsajid35/
+
+About me
+
+https://about.me/mrwinstonclothing
+
+Carrd
+
+https://mrwinstonau.carrd.co/
+
+Behance
+
+https://www.behance.net/shahnazsajid
+
+
+
+
 
