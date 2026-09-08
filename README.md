@@ -28,6 +28,10 @@ Blogger
 
 https://www.blogger.com/blog/posts/635987158870719461
 
+Tumbler
+
+https://www.tumblr.com/holyvolcanospider/821103160505532416/the-ultimate-comfort-essential-for-everyday-style?source=share
+
 # Brand Profiles
 
 Pinterest
@@ -45,6 +49,10 @@ https://mrwinstonau.carrd.co/
 Behance
 
 https://www.behance.net/shahnazsajid
+
+Notion
+
+https://sable-verdict-6f3.notion.site/Mr-winston-Women-Fashion-388ca8503b09800a9b90f51fcc38b835
 
 
 
